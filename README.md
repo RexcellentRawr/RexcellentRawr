@@ -1,3 +1,3 @@
-# Hello! I'm Rex!
+# Hello! I'm Rex 👋
 
 > I like dinosaurs! Ror 🦖
